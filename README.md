@@ -1,1 +1,1 @@
-L'esercizio è ancora in fase di svoglimento
+Finito 28/02/24
